@@ -1,1 +1,0 @@
-# swastic_electronics
